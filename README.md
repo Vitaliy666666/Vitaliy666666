@@ -1,0 +1,3 @@
+Hello, my name is Vitaly.
+I dream of becoming a part of the IT world, I follow the path of a web developer ;)
+Glad to see you on my account, look what I do...
